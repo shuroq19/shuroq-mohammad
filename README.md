@@ -28,7 +28,7 @@ Currently gaining hands-on skills through DEPI's Cybersecurity track and always 
 
 ### 📫 Contact Me
 
-- 📧 Email: shuroq.mohammad@gmail.com  
+- 📧 Email: shuroqradwan19@gmail.com  
 - 🔗 LinkedIn: [linkedin.com/in/shuroq-mohammad](https://linkedin.com/in/shuroq-mohammad)
 
 ---
